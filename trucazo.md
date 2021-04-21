@@ -1,2 +1,2 @@
 Que trucazo EH?
-![Que trucazo EH?](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.metco.com.mx%2Ftrucazo-moe%2F&psig=AOvVaw2t7GKjbo2t6ukRgFpDG2oo&ust=1619123549089000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCLDsw7OXkPACFQAAAAAdAAAAABAT)
+![Que trucazo EH?](https://static.wikia.nocookie.net/memes-pedia/images/7/7b/Trucazo.jpg/revision/latest/scale-to-width-down/400?cb=20200803163456&path-prefix=es)
